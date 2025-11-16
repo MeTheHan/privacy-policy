@@ -95,7 +95,5 @@ We may update this privacy policy. We will notify users of any material changes 
 
 9. Contact Information
 
-For privacy-related questions, contact:
-Email: metehanakin019@gmail.com
+For privacy-related questions, contact from this 
 YouTube Channel: youtube.com/@MTechnoW
-
