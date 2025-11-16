@@ -1,6 +1,6 @@
 Privacy Policy for MTechno YouTube Subscription Check
 
-Last Updated: [16 November 2025]
+Last Updated: 16 November 2025
 
 1. Information We Collect
 
@@ -97,5 +97,5 @@ We may update this privacy policy. We will notify users of any material changes 
 
 For privacy-related questions, contact:
 Email: metehanakin019@gmail.com
-YouTube Channel: [MTechno YouTube Channel]
+YouTube Channel: youtube.com/@MTechnoW
 
